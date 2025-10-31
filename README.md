@@ -5,13 +5,15 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nlxgfjxx4ezh3trhymv2ij57um&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-Hi! I'm enniu, you've probably seen me around docks once before! I'm not that active on this game anymore but i still log on once in a while
+Hello! I'm Enniu, you've probably seen me around docks, since that's my main hangout area!
 
-Anyone over 13 can interact but i block freely, if you wanna know why i blocked you ask me on my strawpage/atabook!
+I'm not too active on this game, but when I am I'm usually talking to myself at docks, it's a habit. Don't judge (pleaaase..), I don't mind people interacting though, I actually would like if you did so... especally if you like weezer or songs from the black hole (those are my main two interests, I have more though!)
 
-C+H is always fine, although i would like if you let me know first.
+Speaking of interacting, C+H is always ok! Just let me know first
 
-I like weezer a lot, i have other interests but if you like weezer and/or songs from the black hole PLEASE interact!!!!!
+Oh, I also tend to block/hide freely, if you ever want to know why, just send me something on my atabook (heads up: I auto-hide pro/darkship people. I'm not comfortable with seeing that sort of stuff and find it weird, personally) (I also hide anyone under 13, nothing against kids, I just don't like and feel uncomfortable talking to people who aren't even out of middle school!!!)
+
+Also, wuanjonas is canon nobody can change my mind. #DOOMEDSPACEWEEZERYAOIFOREVER
 
 ![](https://files.catbox.moe/rb0x8l.png)![](https://files.catbox.moe/t54h1l.gifv)![](https://files.catbox.moe/6ixhve.png)
 ![](https://files.catbox.moe/pfisqj.gif)![](https://files.catbox.moe/0k8za4.png)![](https://files.catbox.moe/9dacgi.gif)
