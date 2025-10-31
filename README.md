@@ -11,9 +11,13 @@ I'm not too active on this game, but when I am I'm usually talking to myself at 
 
 Speaking of interacting, C+H is always ok! Just let me know first
 
+(And also speaking of weezer: my favorite weezer songs are ywgwmt, don't let go, eulogy for a rock band, why bother?, and blast off!, if you want any reccs PLEASE hit me up I have plenty..... I also have a spotify playlist of [weezer's best songs](https://open.spotify.com/playlist/0VTlfNujsvm290gebIpsHv?si=1ded3501eb5a4bf9))
+
 Oh, I also tend to block/hide freely, if you ever want to know why, just send me something on my atabook (heads up: I auto-hide pro/darkship people. I'm not comfortable with seeing that sort of stuff and find it weird, personally) (I also hide anyone under 13, nothing against kids, I just don't like and feel uncomfortable talking to people who aren't even out of middle school!!!)
 
-Also, wuanjonas is canon nobody can change my mind. #DOOMEDSPACEWEEZERYAOIFOREVER
+I'm also an aspiring gamedev, I'm looking into game engines and such, so reccs for that sort of stuff is appreciated!!!!!! You can also ask me about it, I prrobably won't have much to say though, I haven't really planned the game that much
+
+(Also, wuanjonas is canon. Nobody can change my mind. #DOOMEDSPACEWEEZERYAOIFOREVER)
 
 ![](https://files.catbox.moe/rb0x8l.png)![](https://files.catbox.moe/t54h1l.gifv)![](https://files.catbox.moe/6ixhve.png)
 ![](https://files.catbox.moe/pfisqj.gif)![](https://files.catbox.moe/0k8za4.png)![](https://files.catbox.moe/9dacgi.gif)
