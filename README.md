@@ -17,6 +17,9 @@ Oh, I also tend to block/hide freely, if you ever want to know why, just send me
 
 I'm also an aspiring gamedev, I'm looking into game engines and such, so reccs for that sort of stuff is appreciated!!!!!! You can also ask me about it, I prrobably won't have much to say though, I haven't really planned the game that much
 
+
+![](https://files.catbox.moe/ma7swa.jpg)
+
 (Also, wuanjonas is canon. Nobody can change my mind. #DOOMEDSPACEWEEZERYAOIFOREVER)
 
 ![](https://files.catbox.moe/rb0x8l.png)![](https://files.catbox.moe/t54h1l.gifv)![](https://files.catbox.moe/6ixhve.png)
